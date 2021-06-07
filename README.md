@@ -1,3 +1,4 @@
-# wolun
-不迷路
-的所发生的反倒是反倒是富士达富士达反倒是反倒是反倒是 
+请记住这个网址，如果后期网址更新都到这里来找https://github.com/w77688888/wolun
+
+地址：https://w2.aaammmggg.com/
+备用地址：https://wolun999.top
