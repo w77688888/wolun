@@ -3,3 +3,6 @@
 <h1>··································································································</h1>
 <h1>↓↓↓↓↓下面是你需要进入的地址↓↓↓↓↓</h1>
 <h1>地址：https://w2.aaammmggg.com/</h1>
+<img src="https://w2.aaammmggg.com/images/01.png" width="800" >
+<img src="https://w2.aaammmggg.com/images/02.png" width="800" >
+<img src="https://w2.aaammmggg.com/images/001.png" width="800" >
